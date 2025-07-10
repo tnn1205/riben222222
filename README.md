@@ -22,4 +22,4 @@
 
 如果你在寻找一个不卡顿、资源全、内容新、无广告、无码高清的日本成人影片平台，那成人羞羞免费将是你不容错过的首选。立即点击任意入口，开启一场高清无码、无拘无束的视觉飨宴，让你的夜晚从此更充实、更畅快！
 
-<span style="display:none;">[Canonical link]  (  ）</span> 
+<span style="display:none;">[Canonical link]  ( https://github.com/tnn1205/riben222222 ）</span> 
